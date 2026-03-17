@@ -1,2 +1,3 @@
 # Social-Connect
-Week 1: Research and Campaign Planning
+Creating and Managing a Digital
+Marketing Campaign
