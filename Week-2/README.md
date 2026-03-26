@@ -15,3 +15,10 @@ https://drive.google.com/file/d/1v_RnKH-d86d8Jpy2NpU4yz_zpFFOzu40/view?usp=shari
 - **Strong Visuals:** 70%  
 - **Timing and Frequency:** 50%  
 - **Interactive Elements:** 80%
+
+## Quick Poll
+
+**How do you like to connect?**  
+a. Chat  
+b. Voice Call  
+c. Video Call
