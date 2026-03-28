@@ -29,7 +29,7 @@ c. Video Call
 
 Research | Content Creation | Planning
 
-Learn more about our strategies and campaign:
+Learn more 
 🌐 www.socialconnect.com
 - 
 ### Social connect Ad Creative 1
