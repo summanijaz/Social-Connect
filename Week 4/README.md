@@ -35,3 +35,18 @@ LinkedIn Posts (Proof)
 Post 1: https://www.linkedin.com/posts/summan-ijaz_contentdistribution-learning-digitalskills-share-7451285696616775680-O5Hi?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFqXz3oBCrBASPIMvCgJyZdzrdop4ysC63w
 Post 2: https://www.linkedin.com/posts/summan-ijaz_contentdistribution-learning-digitalskills-share-7451287370131333120-3HLX?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFqXz3oBCrBASPIMvCgJyZdzrdop4ysC63w
 Post 3:https://www.linkedin.com/posts/summan-ijaz_contentmarketing-learning-practice-share-7451287676474855424-Qh7L?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFqXz3oBCrBASPIMvCgJyZdzrdop4ysC63w
+
+Ad Creative
+
+I created an ad creative for my project Social Connect using Canva and shared it on LinkedIn.
+
+🔗 LinkedIn Post: https://www.linkedin.com/posts/summan-ijaz_socialconnect-contentdistribution-learning-share-7451582188678004737-Kk3A?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFqXz3oBCrBASPIMvCgJyZdzrdop4ysC63w
+
+Content Distribution
+
+I shared my project content on LinkedIn to understand how content is distributed across platforms.
+
+Mock Campaign
+Project: Social Connect
+Audience: Students (18–30)
+Ad Text: Download Now and strat Connecting
