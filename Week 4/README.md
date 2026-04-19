@@ -49,4 +49,6 @@ I shared my project content on LinkedIn to understand how content is distributed
 Mock Campaign
 Project: Social Connect
 Audience: Students (18–30)
+
 Ad Text: Download Now and strat Connecting
+Platform: LinkedIn
